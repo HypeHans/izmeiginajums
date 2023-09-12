@@ -1,0 +1,2 @@
+# izmeiginajums
+sis ir izmeiginajums
